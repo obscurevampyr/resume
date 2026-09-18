@@ -14,7 +14,7 @@ i worked as a cameraman
 
 ## Projects
 
-
+[ptojects school](aura.jpg)
 
 ## Contact us
 
