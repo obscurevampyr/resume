@@ -10,9 +10,11 @@ i graduated from humber college in canada
 
 ## Employment
 
-i worked as a cameraman and 
+i worked as a cameraman
 
 ## Projects
+
+
 
 ## Contact us
 
