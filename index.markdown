@@ -12,3 +12,4 @@ THis will be stuff about me...
 
 ## Contact us
 
+[ visit me on - (https://ca.linkedin.com/)]
