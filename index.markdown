@@ -14,8 +14,8 @@ i worked as a cameraman
 
 ## Projects
 
-[ptojects school](aura.jpg)
+![projects school](aura.jpg)
 
 ## Contact us
 
-[ visit me on - (https://ca.linkedin.com/)]
+[ visit me on - ](https://ca.linkedin.com/)
